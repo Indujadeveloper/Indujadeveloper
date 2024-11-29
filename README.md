@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... learning deep ✔
 - 🌱 I’m currently learning ... python full stack development ⚡🔥
 - 💞️ I’m looking to collaborate on ...create new passionate one 🍃
-- 📫 How to reach me ...induja.developer@gmail.com
+- 📫 How to reach me ...  induja.developer@gmail.com
 - 😄 Pronouns: ... she/her 🍂
 - ⚡ Fun fact: ... Judo , Athletics ✨
 
